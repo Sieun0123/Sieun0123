@@ -1,4 +1,4 @@
-## Built by Lee Sieun✨
+## Built by Lee Sieun🐝
 
 <!--
 **Sieun0123/Sieun0123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
